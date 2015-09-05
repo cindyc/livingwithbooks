@@ -41,7 +41,7 @@ After 860 days, 8,000 kilometers, 200,000 mosquito bites, under the watch and fl
 <blockquote>For this to be a Guinness World Record we had to be scrupulously strict. We would walk 100 per cent of the journey and never use a motor, a sail or even the flow of the river to propel us. Clearly we would have to cross bodies of water, and for that we would be in boats, but we knew from the outset that every meter of each crossing should be paddled by hand to make the journey truly human-powered.</blockquote>
 <strong><a title="Wild" href="http://www.amazon.com/Wild-Found-Pacific-Crest-Trail/dp/0307476073/ref=sr_1_1?ie=UTF8&amp;qid=1413661954&amp;sr=8-1&amp;keywords=Wild" target="_blank">Wild</a></strong>
 
-[caption id="attachment_538" align="alignnone" width="161"]<a href="https://dottednote.files.wordpress.com/2014/10/wild.jpg" target="_blank" rel="http://www.amazon.com/Wild-Journey-Found-Cheryl-Strayed-ebook/dp/B005CRQ4XI/ref=sr_1_1_twi_2?ie=UTF8&amp;qid=1413662261&amp;sr=8-1&amp;keywords=Wild"><img class="wp-image-538" src="https://dottednote.files.wordpress.com/2014/10/wild.jpg?w=190" alt="wild" width="161" height="251" /></a> Wild: From Lost to Found on the Pacific Crest Trail[/caption]
+![Wild](http://ecx.images-amazon.com/images/I/51IyLG-dL5L._SX322_BO1,204,203,200_.jpg)
 
 Following the lose of her mother, a divorce, and losing her job, Strayed made the decision to walk the Pacific Crest Trail (PCT) on her own.
 
@@ -94,7 +94,7 @@ Strayed reached the "Bridge of the Gods" that's connecting the Oregon and Washin
 How wild it was, to let it be.</blockquote>
 <a title="A Walk Across America: Peter Jenkins" href="http://www.amazon.com/Walk-Across-America-Peter-Jenkins/dp/006095955X/ref=sr_1_1?s=books&amp;ie=UTF8&amp;qid=1413662768&amp;sr=1-1&amp;keywords=walk+across+america" target="_blank">A Walk Across America</a>
 
-[caption id="attachment_540" align="alignnone" width="168"]<a href="https://dottednote.files.wordpress.com/2014/10/a_walk_across_america.jpg" target="_blank" rel="http://www.amazon.com/Walk-Across-America-Peter-Jenkins/dp/006095955X/ref=sr_1_1?s=books&amp;ie=UTF8&amp;qid=1413662768&amp;sr=1-1&amp;keywords=walk+across+america"><img class="wp-image-540" src="https://dottednote.files.wordpress.com/2014/10/a_walk_across_america.jpg?w=194" alt="A Walk Across America -- Peter Jenkins" width="168" height="256" /></a> A Walk Across America -- Peter Jenkins[/caption]
+![A Walk Across America](http://ecx.images-amazon.com/images/I/51xZ6OZzI2L._SX322_BO1,204,203,200_.jpg)
 
 In 1973, Jenkins was 19 years old and just broke out of a marriage. He wanted to leave his hometown Greenwich, Connecticut for a while. He was also upset by the things heard on the news -- about the Vietnam war, about the South, about the industrial pollution in America and so many other concerns, he wanted to walk to rewaken this faith in himself and his country.
 
