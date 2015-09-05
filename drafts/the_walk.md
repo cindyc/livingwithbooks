@@ -4,7 +4,8 @@ Selections from one of my reading sprees. These 3 books are about the lone walks
 
 <strong><a title="Walking the Amazon" href="http://www.amazon.com/Walking-Amazon-Days-Step-Time-ebook/dp/B008IBBJ80/ref=tmm_kin_swatch_0?_encoding=UTF8&amp;sr=8-" target="_blank">Waking the Amazon</a>: </strong>
 
-[caption id="attachment_536" align="alignnone" width="168"]<a href="https://dottednote.files.wordpress.com/2014/10/91jsxuumtl-_sl1500_.jpg" target="_blank" rel="http://www.amazon.com/Walking-Amazon-Days-Step-Time-ebook/dp/B008IBBJ80/ref=tmm_kin_swatch_0?_encoding=UTF8&amp;sr=8-"><img class="wp-image-536 " src="https://dottednote.files.wordpress.com/2014/10/91jsxuumtl-_sl1500_.jpg?w=199" alt="" width="168" height="251" /></a> Walking the Amazon, Ed Stafford[/caption]
+![Image of Walking the Amazon](http://ecx.images-amazon.com/images/I/61-IS-S1%2BnL._SX330_BO1,204,203,200_.jpg)
+
 
 British explorer Ed Stafford walked the entire Amazon river on foot, without using a motor, a boat or even the flow of the river to propel him. The expedition is first time anyone walk the entire Amazon river on foot, and is recognized for Guinness World Record.
 
@@ -88,7 +89,7 @@ Walking on ice covered trail at risk of falling off the cliff.
 Strayed reached the "Bridge of the Gods" that's connecting the Oregon and Washington borders.
 
 <strong>Quotes:</strong>
-<blockquote>t was all unknown to me then, as I sat on that white bench on the day I finished my hike. Everything except the fact that I didn't have to know. That is was enough to trust that what I'd done was true. To understand its meaning without yet being able to say precisely what it was, like all those lines from The Dream of a Common Language that had run through my nights and days. To believe that I didn't need to reach with my bare hands anymore. To know what seeing the fish beneath the surface of the water was enough,. That is was everything. It was my life -- like all lives, mysterious adn irrevocable and sacred. So very close, so very present, so very belonging to me.
+<blockquote>It was all unknown to me then, as I sat on that white bench on the day I finished my hike. Everything except the fact that I didn't have to know. That is was enough to trust that what I'd done was true. To understand its meaning without yet being able to say precisely what it was, like all those lines from The Dream of a Common Language that had run through my nights and days. To believe that I didn't need to reach with my bare hands anymore. To know what seeing the fish beneath the surface of the water was enough,. That is was everything. It was my life -- like all lives, mysterious adn irrevocable and sacred. So very close, so very present, so very belonging to me.
 
 How wild it was, to let it be.</blockquote>
 <a title="A Walk Across America: Peter Jenkins" href="http://www.amazon.com/Walk-Across-America-Peter-Jenkins/dp/006095955X/ref=sr_1_1?s=books&amp;ie=UTF8&amp;qid=1413662768&amp;sr=1-1&amp;keywords=walk+across+america" target="_blank">A Walk Across America</a>
