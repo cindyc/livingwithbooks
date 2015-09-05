@@ -2,7 +2,9 @@
 
 Selections from one of my reading sprees. These 3 books are about the lone walks in the wilderness. They are explorer's diaries that take us to experience the places, people, the danger and the self discovery through the journey. Be it an expedition that no human ever attempted; a spiritual journey to find oneself; or a discovery trip of the land we are living on, these books take us one step at a time.
 
-<strong><a title="Walking the Amazon" href="http://www.amazon.com/Walking-Amazon-Days-Step-Time-ebook/dp/B008IBBJ80/ref=tmm_kin_swatch_0?_encoding=UTF8&amp;sr=8-" target="_blank">Waking the Amazon</a>: </strong>
+
+
+###### <strong><a title="Walking the Amazon" href="http://www.amazon.com/Walking-Amazon-Days-Step-Time-ebook/dp/B008IBBJ80/ref=tmm_kin_swatch_0?_encoding=UTF8&amp;sr=8-" target="_blank">Waking the Amazon</a>: </strong>
 
 ![Image of Walking the Amazon](http://ecx.images-amazon.com/images/I/61-IS-S1%2BnL._SX330_BO1,204,203,200_.jpg)
 
@@ -39,7 +41,10 @@ After 860 days, 8,000 kilometers, 200,000 mosquito bites, under the watch and fl
 
 <strong>Quotes:</strong>
 <blockquote>For this to be a Guinness World Record we had to be scrupulously strict. We would walk 100 per cent of the journey and never use a motor, a sail or even the flow of the river to propel us. Clearly we would have to cross bodies of water, and for that we would be in boats, but we knew from the outset that every meter of each crossing should be paddled by hand to make the journey truly human-powered.</blockquote>
-<strong><a title="Wild" href="http://www.amazon.com/Wild-Found-Pacific-Crest-Trail/dp/0307476073/ref=sr_1_1?ie=UTF8&amp;qid=1413661954&amp;sr=8-1&amp;keywords=Wild" target="_blank">Wild</a></strong>
+
+
+
+###### <strong><a title="Wild" href="http://www.amazon.com/Wild-Found-Pacific-Crest-Trail/dp/0307476073/ref=sr_1_1?ie=UTF8&amp;qid=1413661954&amp;sr=8-1&amp;keywords=Wild" target="_blank">Wild</a></strong>
 
 ![Wild](http://ecx.images-amazon.com/images/I/51IyLG-dL5L._SX322_BO1,204,203,200_.jpg)
 
@@ -92,7 +97,10 @@ Strayed reached the "Bridge of the Gods" that's connecting the Oregon and Washin
 <blockquote>It was all unknown to me then, as I sat on that white bench on the day I finished my hike. Everything except the fact that I didn't have to know. That is was enough to trust that what I'd done was true. To understand its meaning without yet being able to say precisely what it was, like all those lines from The Dream of a Common Language that had run through my nights and days. To believe that I didn't need to reach with my bare hands anymore. To know what seeing the fish beneath the surface of the water was enough,. That is was everything. It was my life -- like all lives, mysterious adn irrevocable and sacred. So very close, so very present, so very belonging to me.
 
 How wild it was, to let it be.</blockquote>
-<a title="A Walk Across America: Peter Jenkins" href="http://www.amazon.com/Walk-Across-America-Peter-Jenkins/dp/006095955X/ref=sr_1_1?s=books&amp;ie=UTF8&amp;qid=1413662768&amp;sr=1-1&amp;keywords=walk+across+america" target="_blank">A Walk Across America</a>
+
+
+
+###### <a title="A Walk Across America: Peter Jenkins" href="http://www.amazon.com/Walk-Across-America-Peter-Jenkins/dp/006095955X/ref=sr_1_1?s=books&amp;ie=UTF8&amp;qid=1413662768&amp;sr=1-1&amp;keywords=walk+across+america" target="_blank">A Walk Across America</a>
 
 ![A Walk Across America](http://ecx.images-amazon.com/images/I/51xZ6OZzI2L._SX322_BO1,204,203,200_.jpg)
 
