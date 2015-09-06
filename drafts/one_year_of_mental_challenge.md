@@ -4,9 +4,8 @@ What can you do in a year? Well, if you set your mind to it, you could do anythi
 
 ###### Become the U.S. Memory Champion
 
-<a href="http://www.amazon.com/Moonwalking-Einstein-Science-Remembering-Everything-ebook/dp/B004H4XI5O/ref=sr_1_1_ha?s=digital-text&ie=UTF8&qid=1412713120&sr=1-1&keywords=moonwalking+with+einstein">Moonwalking with Einstein</a></strong>
 
-![Moonwalking with Einstein: The Art of Science of Remembering Everything](http://www.amazon.com/Moonwalking-Einstein-Science-Remembering-Everything-ebook/dp/B004H4XI5O/ref=sr_1_1_twi_2?ie=UTF8&qid=1412828519&sr=8-1&keywords=Moonwalking+with+einstein)
+![Moonwalking with Einstein: The Art of Science of Remembering Everything](http://ecx.images-amazon.com/images/I/51emzVxdvWL._SX324_BO1,204,203,200_.jpg)
 
 <i>Moonwalking with Einstein</i> recounts Joshua Foer's yearlong quest to improve his memory under the tutelage of top "mental athletes." He draws on cutting-edge research, a surprising cultural history of remembering, and venerable tricks of the mentalist's trade to transform our understanding of human memory.
 
@@ -47,9 +46,8 @@ World Memory Championships:
 
 ###### Strive to Know It All
 
-<b style="font-style:inherit;line-height:1.625;">Become the Smartest Person on Earth by Reading the Encyclopedia Britannica: </b><strong style="font-style:inherit;line-height:1.625;"><a title="The Know-It-All" href="http://www.amazon.com/Know---All-Humble-Become-Smartest-ebook/dp/B000FC2LUA/ref=sr_1_1?s=digital-text&ie=UTF8&qid=1412713190&sr=1-1&keywords=know+it+all" target="_blank">Know-It-All</a></strong>
 
-![The Know-It-All: One Man's Humble Quest to Become the Smartest Person --A. J. Jacobs]("http://ecx.images-amazon.com/images/I/81DnYiO9d7L._SL1500_.jpg")
+![The Know-It-All: One Man's Humble Quest to Become the Smartest Person --A. J. Jacobs](http://ecx.images-amazon.com/images/I/51QVZWXV3BL._SX324_BO1,204,203,200_.jpg)
 
 <i>The Know-It-All</i> chronicles NPR contributor A.J. Jacobs's hilarious, enlightening, and seemingly impossible quest to read the <i>Encyclopaedia Britannica</i> from A to Z.
 
